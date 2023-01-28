@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Nafi Aufa Alifian**.\
+Perkenalkan nama saya **Nafi Aufa Alifian**.
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin]([https://www.linkedin.com/in/gilang-adhan/](https://www.linkedin.com/in/nafi-aufa-652835177/))ku ya.
 
